@@ -1,2 +1,0 @@
-# estrela---
-user de discord
